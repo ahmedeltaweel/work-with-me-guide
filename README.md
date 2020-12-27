@@ -2,7 +2,7 @@
 
 This document works as a manual for working with me. It should give a better sense of me and my values.
 
-I really appreciate feedback anytimwe. So please use this form [here](https://forms.gle/S3MyHbvJRib85CPg7) to give me an anonymous one.
+I really appreciate feedback anytime. So please use this form [here](https://forms.gle/S3MyHbvJRib85CPg7) to give me an anonymous one.
 
 ## How I communicate:
 I am clearer in in-person than in writing. And if a meeting is required, it should have a clear agenda shared before it and preferably 30-40 mins max unless there is a big reason for more time. There is an exception for the agenda part if the reason of the meeting is to brainstorm with respect to timing and to have a documented outcome of the meeting.
