@@ -8,11 +8,11 @@ This document works as a manual for working with me. It should give a better sen
 I am clearer in in-person than in writing. And if a meeting is required, it should have a clear agenda shared before it and preferably 30-40 mins max unless there is a big reason for more time. There is an exception for the agenda part if the reason of the meeting is to brainstorm with respect to timing and to have a documented outcome of the meeting.
 When in a meeting or in an in-person talk and my point is not absolutely clear, please ask me to clarify or be precise with action items.
 
-## Perefered means of communication:
+## Pereferred means of communication:
 1. Work chat if possible.
 2. email **ahmed.m.eltaweel@outlook.com**
 
-## Things I Do That May Annoy You:
+## Things I do that may annoy you:
 1. I do not like ambiguity or assumptions. So, I will ask a lot of question and may ask the question again in differernt form to clarify more.
 2. I will ask to document meeting takouts, tasks and decisions as a future reference.
 
