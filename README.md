@@ -19,15 +19,15 @@ When in a meeting or in an in-person talk and my point is not absolutely clear, 
 ## Things I do not like:
 1. Rudeness, unfairness and being self-focused.
 2. Fake compliments and hypocrisy.
-3. In-direct speeking, feedback or opinion.
+3. In-direct speeking, unclear feedback or fake opinion.
 	
 ## Thinks I like:
 1. I like short, precise and in-point stories, opinion or feedback.
 2. I like providing help whenever I can. So do not hesitate to ask.
-3. I do not say no to a cup of coffee with cookies, daunts, … etc with a friendly side-talk during the break in-person -if possible- or virtually.
+3. I do not say no to a cup of coffee with cookies, doughnuts, … etc with a friendly side-talk during the break in-person -if possible- or virtually.
 
 ## Things you can expect from me:
 1. Direct, honest and fair opinion or feedback.
 2. I will listen and take notes from what you say carfully. Then will give you an answer if I can or I will do some research and give you one later.
-3. Sometimes I am to detailed.
+3. Sometimes I am too detailed.
 
