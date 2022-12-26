@@ -3,6 +3,15 @@ Welcome to this guide on working with me! My goal is to give you a better unders
 
 I really value constructive feedback, so please feel free to use this anonymous form [here](https://forms.gle/S3MyHbvJRib85CPg7) to share any thoughts or suggestions you have.
 
+### The values that drive me include:
+* Simplicity and realism.
+* A focus on data-driven decision-making. I.e. In god, we trust, everyone else bring data.
+* A sense of ownership and responsibility in my work, and a desire to share knowledge and support others.
+* A commitment to 
+  * continuous learning and development.
+  * Up-skilling & Re-skilling & Rotating up.
+
+
 ### How I communicate:
 In-person, I tend to be more clear in my communication than I am in writing. If we need to have a meeting, it's important to me that we have a clear agenda beforehand and that the meeting is no longer than 30-40 minutes, unless there is a specific reason for it to be longer. The only exception to this is if the purpose of the meeting is to brainstorm and document the outcomes. If I'm not being clear in a meeting or in-person conversation, please don't hesitate to ask me to clarify or be more specific with action items.
 
