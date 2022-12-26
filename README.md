@@ -1,33 +1,30 @@
+## Working with me: A guide
+Welcome to this guide on working with me! My goal is to give you a better understanding of my values and how I like to communicate.
 
-# Work with me guide:
+I really value constructive feedback, so please feel free to use this anonymous form [here](https://forms.gle/S3MyHbvJRib85CPg7) to share any thoughts or suggestions you have.
 
-This document works as a manual for working with me. It should give a better sense of me and my values.
+### How I communicate:
+In-person, I tend to be more clear in my communication than I am in writing. If we need to have a meeting, it's important to me that we have a clear agenda beforehand and that the meeting is no longer than 30-40 minutes, unless there is a specific reason for it to be longer. The only exception to this is if the purpose of the meeting is to brainstorm and document the outcomes. If I'm not being clear in a meeting or in-person conversation, please don't hesitate to ask me to clarify or be more specific with action items.
 
-**I really appreciate constructive feedback. So please use this form [here](https://forms.gle/S3MyHbvJRib85CPg7) to give me an anonymous one.**
+### Preferred means of communication:
+- Work chat, if possible.
+- Email at ahmed.m.eltaweel@outlook.com
 
-## How I communicate:
-I am clearer in in-person than in writing. And if a meeting is required, it should have a clear agenda shared before it and preferably 30-40 mins max unless there is a big reason for more time. There is an exception for the agenda part if the reason of the meeting is to brainstorm with respect to timing and to have a documented outcome of the meeting.
-When in a meeting or in an in-person talk and my point is not absolutely clear, please ask me to clarify or be precise with action items.
+### Things I do that may annoy you:
+- I really dislike ambiguity or assumptions, so I may ask a lot of questions and repeat them in different ways to clarify things.
+- I may ask for meeting takeaways, tasks, and decisions to be documented for future reference.
 
-## Preferred means of communication:
-1. Work chat if possible.
-2. email **ahmed.m.eltaweel@outlook.com**
+### Things I don't like:
+- Rudeness, unfairness, and self-centered behavior.
+- Fake compliments and hypocrisy.
+- Indirect communication, unclear feedback, or fake opinions.
 
-## Things I do that may annoy you:
-1. I do not like ambiguity or assumptions. So, I will ask a lot of question and may ask again in different form to clarify more.
-2. I will ask to document meeting takeouts, tasks and decisions as a future reference.
+### Things I like:
+I appreciate short, concise, and to-the-point stories, opinions, or feedback.
+I enjoy helping out whenever I can, so don't hesitate to ask for help.
+If possible, I'm always up for a coffee (with cookies, doughnuts, etc.) and a friendly chat during a break, either in-person or virtually.
 
-## Things I do not like:
-1. Rudeness, unfairness and being self-focused.
-2. Fake compliments and hypocrisy.
-3. In-direct speaking, unclear feedback or fake opinion.
-	
-## Thinks I like:
-1. I like short, precise and in-point stories, opinion or feedback.
-2. I like providing help whenever I can. So do not hesitate to ask.
-3. I do not say no to a cup of coffee with cookies, doughnuts, … etc with a friendly side-talk during the break in-person -if possible- or virtually.
-
-## Things you can expect from me:
-1. Direct, honest and fair opinion or feedback.
-2. I will listen and take notes from what you say carefully. Then will give you an answer if I can, or I will do some research and give you one later.
-3. Sometimes I am too detailed.
+### Things you can expect from me:
+- Honest, direct, and fair opinions or feedback.
+- I will listen carefully to what you have to say and take notes. If I can, I'll give you an answer right away. If not, I'll do some research and get back to you.
+- Sometimes I can be very detailed in my communication.
