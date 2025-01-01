@@ -13,11 +13,11 @@ I really value constructive feedback, so please feel free to use this anonymous 
 
 
 ### How I communicate:
-In-person, I tend to be more clear in my communication than I am in writing. If we need to have a meeting, it's important to me that we have a clear agenda beforehand and that the meeting is no longer than 30-40 minutes, unless there is a specific reason for it to be longer. The only exception to this is if the purpose of the meeting is to brainstorm and document the outcomes. If I'm not being clear in a meeting or in-person conversation, please don't hesitate to ask me to clarify or be more specific with action items.
+In-person, I tend to be more clear in my communication than I am in writing. If we need to have a meeting, it's important to me that we have a clear agenda beforehand and that the meeting is no longer than 30-45 minutes, unless there is a specific reason for it to be longer. The only exception to this is if the purpose of the meeting is to brainstorm and document the outcomes. If I'm not being clear in a meeting or in-person conversation, **please don't hesitate to ask me to clarify or be more specific with action items**.
 
 ### Preferred means of communication:
 - Work chat, if possible.
-- Email at ahmed.m.eltaweel@outlook.com
+- Direct DM in LinkedIn or Email or using [my links](https://linktr.ee/ahmedeltaweel).
 
 ### Things I do that may annoy you:
 - I really dislike ambiguity or assumptions, so I may ask a lot of questions and repeat them in different ways to clarify things.
